@@ -1,4 +1,4 @@
-# Privay-Policy-Feltrip
+# Privacy-Policy-Feltrip
 
 ## English Version  
 **Last Updated: July 3, 2025**
